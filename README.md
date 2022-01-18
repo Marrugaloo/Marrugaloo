@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Marrugaloo
+- 👀 I’m interested in soccer, tech, and mainly rock music.
+- 🌱 I’m currently a CSCI major at NIU.
+- 📫 How to reach me ... z1689918@students.niu.edu
